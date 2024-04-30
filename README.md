@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Ovun27
+- 👀 I’m interested in HTML, CSS, And etc
+- 🌱 I’m currently learning DATABASE and Codeigniter4
+- 📫 How to reach me FIND ME IN IG : @colliens_12
+- 😄 Pronouns: he
+- ⚡ Fun fact: like to eat burger
